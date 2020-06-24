@@ -1,7 +1,4 @@
-# BusinessAnalyzerSite
-Analyze small scale business sales and income .
+BusinessAnalyzerSite
+Analyze small scale business sales and incnooo
 
-
-yesssssssssssssss
-
-bilal has changed
+noooooooooooooooooooo
