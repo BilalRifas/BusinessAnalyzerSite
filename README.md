@@ -1,5 +1,5 @@
 # BusinessAnalyzerSite
-Analyze small scale business sales and income .
+Analyze small scale business sales and incnooo
 
 
-yesssssssssssssss
+noooooooooooooooooooo
